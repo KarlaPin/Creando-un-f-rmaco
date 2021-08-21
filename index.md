@@ -1,1 +1,1 @@
-borre todo
+Conoce a las reglas de Lipinski
